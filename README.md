@@ -1,2 +1,0 @@
-# kitab-sansekerta
-nyoba doang
